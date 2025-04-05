@@ -15,7 +15,6 @@
 
 - 📫 How to reach me **avinash.thakur2209@gmail.com**
 
-- ⚡ Fun fact **I think I am funny 😆 but my code sometimes isn’t!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
